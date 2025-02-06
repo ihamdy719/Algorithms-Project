@@ -1,4 +1,4 @@
-# Algorithms-Project
+# Algorithms-Project (1)
 
 
 **🚀 LinkedIn Post: Project 2 & Project 7 🚀**  
